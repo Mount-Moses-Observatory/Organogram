@@ -4,3 +4,9 @@ ABSTRACT
 Mount Moses Observatory is the name given to projected globally scattered co-diverse ground based scientific research stations and solution-oriented product development and distribution studios through which future descendants of locally initialized developers can interact and trade with each other and with surface communities while working in terranean, subterranean or other environments. Teams of intellectuals, interns and artisans are currently involved in an online collaborate effort to kick-start the project. Upon fruition, the resultant system is expected to supply material and social requirements for supporting the fourth industrial revolution and subsequent fulfillment of friendly global goals. A pilot ground station is currently under development in Nyamira, Kenya. This paper describes how the project can be put together and maneuvered to success.
 
 Keywords: mining 4i, global collaboration, science, technology, society
+
+ORGANOGRAM
+
+At the bottom of the pyramid is the family company... there are as many family companies as there are independent sprouts of families within the populace and shoud never be counted because people remain strictly people, not assets to be counted or measured as can be done by leaders competing or betting over strengths of numbers in groups verses groups, measuring strengths and so on because this path only leads to war if adhered to persistently. In this light elections are regarded to be in principle intermediary rectification measures against a previous state of total corruption of a society (subset of humanity) under probe, for example, societies in contact with the Middle East pre-zero-AD.
+At the very top of the pyramid there is God Whose formula is LOVE, WHO IS LOVE ITSELF, WHO IS NOT A MAN ... MUNGU NI PENDO
+The middle layers have essential work, extra work, health and wellness and school
